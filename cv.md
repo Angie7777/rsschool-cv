@@ -12,7 +12,6 @@
   - BSUIR Master in Economics 2009;
  - SEO courses, contextual advertising, Google analitics from Webcommedia 2010.
  
- 
  I've completed a retraining course in English at MSLU. At the moment I do not use English in my work.
  
  
